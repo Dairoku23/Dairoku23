@@ -1,0 +1,3 @@
+- Hi, I’m @Dairoku23
+- I’m currently learning the basics of AI
+- Contact me on discord -> Dairoku#8566
